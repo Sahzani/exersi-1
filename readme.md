@@ -1,4 +1,4 @@
-Hi am i doing the right thing
+what did i do?? how do i push and pull?
 helo cana kn ni
 
 
